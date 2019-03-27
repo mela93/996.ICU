@@ -17,11 +17,11 @@ The employer can prolong work hours due to needs of production or businesses aft
 
 In 2019, a E-commerce Company named China Youzan( In China named Youzan ) has praised Youzan will implementation of the "996" job in the future at the company's annual meeting. The CEO of Youzan respond: "After a few years, this is definitely a good thing".
 
-In Mid-March of 2019, Some departments of Jingdong started "996" or "995" job, Jingdong PR shows on the maimai(脉脉, a real-name business social platform of China): "devote myself to do".
+In Mid-March of 2019, Some departments of Jingdong(京东, JD.com) started "996" or "995" job. The PR of Jingdong said on the maimai(脉脉, a real-name business social platform of China): "devote myself to do it".
 
 According to the Labor Law, legal rights are guaranteed only you obtained 2.6 times of the current salary.
 
-What is 996.ICU? Who working in "996" job, who live in ICU.
+What is 996.ICU? Who working in "996" job, who will overworked into the ICU.  
 
 References: ["Labour Law of the People's Republic of China"](http://english.mofcom.gov.cn/aarticle/policyrelease/internationalpolicy/200703/20070304475283.html) by Ministry of Commerce of the People's Republic of China.
 
