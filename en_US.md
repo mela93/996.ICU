@@ -1,7 +1,7 @@
 996.ICU
 ===
 
-"996" job is working from 9am to 9pm, 6 days a week.
+"996" job is working from 9 a.m. to 9 p.m. and 6 days a week.
 
 The weekly working time for the "996" job is a minimum of 60 hours.
 
